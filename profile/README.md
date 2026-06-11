@@ -5,7 +5,7 @@
 **Premier Authorised iMIS Solutions Provider (AiSP) · Association specialists · London, UK**
 
 [ifinity.co.uk](https://www.ifinity.co.uk) ·
-[LinkedIn](https://www.linkedin.com/company/ifinity-plc/) ·
+[LinkedIn](https://www.linkedin.com/company/ifinity-plc/) 
 
 </div>
 
